@@ -1,1 +1,4 @@
-# cv
+- Hi, I'm DEEROY
+- I Love Gaming and Coding
+- contact me: f.dermaku at hotmail.ch
+- 
